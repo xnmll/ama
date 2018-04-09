@@ -21,3 +21,11 @@
 
 
 what a day !
+
+boycott
+
+substitute
+
+agency
+
+attract
