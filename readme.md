@@ -19,13 +19,3 @@
 - [What's an AMA?](https://en.wikipedia.org/wiki//r/IAmA)
 
 
-
-what a day !
-
-boycott
-
-substitute
-
-agency
-
-attract
